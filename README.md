@@ -2,9 +2,9 @@
 黑料正能量- 黑料门-今日黑料 -海外吃瓜网黑料-吃瓜福利网- 黑料社吃瓜爆料反差婊
 
 ----
-[🔞🌏点击进入官网【cg588.com】🌏🔞](https://chigua-wang.github.io/cg51/)
+[🔞🌏点击进入官网【cg588.com】🌏🔞](https://chigua-wang.github.io/cg16/)
 ----
-[🔞🌏点击进入官网【cg589.com】🌏🔞](https://chigua-wang.github.io/cg51/)
+[🔞🌏点击进入官网【cg589.com】🌏🔞](https://chigua-wang.github.io/cg16/)
 ----
 <h3>【瓜棚团】更新时间：2024年12月3日</h3>
 
